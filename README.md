@@ -22,4 +22,3 @@ I strive to spark curiosity in my students and encourage them to explore and fol
 
 ### 📫 Get in Touch
 - 🔗 [LinkedIn](https://www.linkedin.com/in/darina-alovska)
-- 🌍 [GitHub Profile](https://github.com/DarinaAlovska)
